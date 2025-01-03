@@ -1,1 +1,1 @@
-so many versoins looking at so many readmes you could just fall over
+can't back up the lesson pages if you mess up. 
